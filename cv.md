@@ -1,4 +1,5 @@
 # **Yaroslav Haychukov**
+![avatar](https://mykaleidoscope.ru/x/uploads/posts/2022-09/1663321677_57-mykaleidoscope-ru-p-raian-gosling-instagram-61.jpg)
 # my contacts
 ### my **e-mail**: yarikoff@mail.ru
 ### me on **vk page**: https://vk.com/sezzzzzz
